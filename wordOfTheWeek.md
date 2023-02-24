@@ -10,4 +10,4 @@
 5. 	四季：spring   summer      autumn      winter
     月份：January February  March April May June July August September October November December
         nationality民族国籍     climate/ˈklaimit/气候     pleasant    
-    Greece/gri:s/    Brazil/brə'zil/ Holland    Germany 
+    Greece/gri:s/    Brazil/brə'zil/ Holland    Germany   Russia      Spain     Norway
