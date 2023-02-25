@@ -11,3 +11,5 @@
     月份：January February  March April May June July August September October November December
         nationality民族国籍     climate/ˈklaimit/气候     pleasant    
     Greece/gri:s/    Brazil/brə'zil/ Holland    Germany   Russia      Spain     Norway
+ 6. mild     north      east    wet    rise     set   early     late   conversation      
+    Australia   Australian        Austria Austrian      Canada canadian     Finland Finnish  India indian   Japan  Nigeria Nigerian   Turky Turkish  korea  Polish Poland  Thai Thailand 
