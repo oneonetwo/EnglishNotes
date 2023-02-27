@@ -13,3 +13,9 @@
     Greece/gri:s/    Brazil/brə'zil/ Holland    Germany   Russia      Spain     Norway
  6. mild     north      east    wet    rise     set   early     late   conversation      
     Australia   Australian        Austria Austrian      Canada canadian     Finland Finnish  India indian   Japan  Nigeria Nigerian   Turky Turkish  korea  Polish Poland  Thai Thailand 
+
+
+### 2023.02.27 ~ 2023.03.05
+1. envelope/'envə.lop/信封 red envelope glue   chalk   That's all.    some bars of chocolate.
+2. cough  feel ill      look ill          mouth   tongue    have a cold  have a sore throat        aspirin  earache     toothache   dentist     stomach ache    medicine    temperature     fle measles/'mi:zlz/    mumps  
+
