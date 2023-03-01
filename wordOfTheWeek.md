@@ -20,6 +20,10 @@
 2. cough  feel ill      look ill          mouth   tongue    have a cold  have a sore throat        aspirin  earache     toothache   dentist     stomach ache    medicine    temperature     flu  measles/'mi:zlz/    mumps  
 3. certainly    spicy    remain     get up   go away   lean out of 身体探出去
 
+4. the haridresser's   the greengrocer's   the grocer's   the stationer's    the doctor's
+    my mother's   the Paul's      last week    last month   last year   last summer     last Monday     last Friday night   
+    be absent from不在，缺席    are going to 一般将来时，表示打算    spend      Aren't you lucky!
+
 5. Monday Tuesday  Wednesday Thursday Friday  Saturday  Sunday church butcher baker  dairy
 6.  thousands of    hundreds of     millions of     six hundred      on the way home    on the way to school    
     It's hard to say    at lunchtime    century/ˈsentʃəri/ 世纪     race    town    crowd人群  
