@@ -19,3 +19,5 @@
 1. envelope/'envə.lop/信封 red envelope glue   chalk   That's all.    some bars of chocolate.
 2. cough  feel ill      look ill          mouth   tongue    have a cold  have a sore throat        aspirin  earache     toothache   dentist     stomach ache    medicine    temperature     flu  measles/'mi:zlz/    mumps  
 3. certainly    spicy    remain     get up   go away   lean out of 身体探出去
+
+5. Monday Tuesday  Wednesday Thursday Friday  Saturday  Sunday church butcher baker  dairy
