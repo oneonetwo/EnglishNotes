@@ -21,3 +21,7 @@
 3. certainly    spicy    remain     get up   go away   lean out of 身体探出去
 
 5. Monday Tuesday  Wednesday Thursday Friday  Saturday  Sunday church butcher baker  dairy
+6.  thousands of    hundreds of     millions of     six hundred      on the way home    on the way to school    
+    It's hard to say    at lunchtime    century/ˈsentʃəri/ 世纪     race    town    crowd人群  
+    denmark  Australia    
+7.  awful   available   think=>thought      the day before yesterday    just now   
