@@ -29,3 +29,4 @@
     It's hard to say    at lunchtime    century/ˈsentʃəri/ 世纪     race    town    crowd人群  
     denmark  Australia    
 7.  awful   available   think=>thought      the day before yesterday    just now   
+8. know...well对.了解      lose one's way迷路   forest
