@@ -35,3 +35,4 @@
     形容词与副词相同：late late fast fast   hard hard   well well
     不规则动词的过去式:
     go went   know  knew    see saw      say said     understand understood      put put     take took    cut cut     read read       meet met     drink drank       swim swam   run ran     give   gave 
+9. like these介词短语做定语修饰前面的名词   I'm afraid so.      I'm afraid not.恐怕不是这样     the year before last    out of fashion   comfortable        
