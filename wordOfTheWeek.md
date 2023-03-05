@@ -29,7 +29,7 @@
     It's hard to say    at lunchtime    century/ˈsentʃəri/ 世纪     race    town    crowd人群  
     denmark  Australia    
 7.  awful   available   think=>thought      the day before yesterday    just now   
-8. know...well对.了解      lose one's way迷路   forest      tell someone the way to...      phrase短语      suddenly/'sAdnli/   pocket  hurrredly   greet wind blow 
+8. know...well对.了解      lose one's way迷路   forest      tell someone the way to...      phrase短语      suddenly/'sAdnli/   pocket  hurriedly   greet wind blow 
     形容词变副词： -ly  quick quickly   hurried hurriedly   pleasant pleasantly     warm warmly     
     thirsty thirstily   happy happily   lazy lazily     
     形容词与副词相同：late late fast fast   hard hard   well well
