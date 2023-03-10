@@ -22,8 +22,8 @@ Construct good sentences 合理的组织句子
 2. 专有名词和普通名词   
     - proper noun
     - common noun 
-3. 可数名词的单复数
-4. 不可数名词
+
+3. 不可数名词
     > 无法凤娥 组成部分太小 表示某类事物的称 抽象名词   研究学科
     1. piece 
         - a piece of news   two pieces of paper 
@@ -32,6 +32,14 @@ Construct good sentences 合理的组织句子
         - a glass of milk
         - two glasses of wine
         - two cups of coffee
+    3. 其他的量词
+        - a loaf of bread
+        - a tube of toothpaste
+        - a slice of pizze
+4. 可数名词的单复数
+    1. 可数名词变成复数
+    
+
 
 
 
