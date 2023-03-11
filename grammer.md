@@ -137,14 +137,62 @@ Construct good sentences 合理的组织句子
         - Remember never to do such things.
         - Do the same as the teacher tells you.
 6. 关系代词
+    1. 用来引导定语从句的代词叫做关系代词。
+    2. 主要有Who, which, that, whom, 这些代词可将定语从句和主句连接起来。
+    3. 英语中的关系代词一方面在从句中担任一定的成分，另一i方面又起链接作用。
+    4. eg 
+        - The student who is drawing a picture is in my class.
+        - Do you know the man who is wearing a black hat?
+        - Have you found the book which you lost a week ago?
+        - Can you see the dog that is running along the river blank.
+
 7. 疑问代词
     1. 疑问代词即用于引出特殊疑问句的代词。
     2. 主要有who, whom, whose, what, which, whoever,whatever,whichever
     3. 疑问代词主要用于特殊疑问句中，一般放在句首。
     4. 口语中也常用who代替whom作宾语，但在介词后则只能用whom。
+    5. eg
+        - What did Ali say?
+        - Which one do you want?
+        - What are you talking about?
+        - Who are you?
+        - From whom did you learn that he was there?
+        - you love whom?
+        - Whose room is it?
 8. 连接代词
+    1. 指的是用来引导名词性从句（主语从句、宾语从句、表语从句）或不定式的代词。
+    2. 英语中连接代词主要有what, who, whom, which, whose,whoever, whatever, whichever
+    3. eg
+        - Ast them which they want?
+        - The question is who can help us?
+        - She asked me whom I was talking to just now.
+        - Whoever comes will get a surprise at the color of our house.
+        - Please buy whatever is the cheapest.
 9. 相互代词
+    1. 相互代词就是表示相互关系的代词。它与它所指代的名词或代词是一种互指关系，因此它们是复数或者二者以上
+    2. 互代词只有each other和one another两个词组。
+    3. 在正式文体中多用each other指两者，用one another指三者或三者以上。但是，在现代英文中，特别是美语当中，二者渐可通用，均可表示两者或三者以上的彼此
+    4. eg
+        - Students should help one another.
+        - We have known each other for many years.
+        - They often stay in one another's house.
+        - We don't see much of each other.
+        - We may never see each other again.
 10. 不定代词
+    1. 不定代词是不指明代替任何特定名词或形容词的代词。
+    2. some(something, somebody, someone, somewhere)
+    3. any(anything, anybody, anyone, anywhere)
+    4. no(nothing, nobody, no one)
+    5. every(everything, everybody, everyone, everywhere)
+    6. all each both much many (a)little (a)few other(s) another none one either neither.
+    7. eg.
+        - Is everybody here?
+        - I like none of the books
+        - If you have any, give us some.
+        - That's nothing.
+        - Thanks, It's too much for me.
+        - That's really something.
+        - You may take either road.
 
 
 
